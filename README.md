@@ -11,6 +11,6 @@ Information on me
 
 ☑️ Telegram - https://t.me/noloverme
 
-🕐 Discord - https://discordapp.com/users/975434661830467696/
+🕐 Discord - noloverme
 
 🔊 Spotify playlist - https://open.spotify.com/playlist/5ScywbUprkdvLALvnihp5x?si=5W-XTKdhRiavSKARrGE-jw&pi=e-GP2vim0SR-Ch
